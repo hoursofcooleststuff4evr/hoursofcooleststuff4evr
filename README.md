@@ -1,3 +1,4 @@
+
 <div align="center"><img src="https://s6.ezgif.com/tmp/ezgif-69efb86154dadcee.gif"></div>
 <div align="center"><img src="https://s6.ezgif.com/tmp/ezgif-6e7747765f044724.gif"></div>
 <div align="center">
@@ -8,10 +9,12 @@
 
 <div align="center"> 
   
-  ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=blue&label=memories&abbreviated=true) 
+  ![](https://komarev.com/ghpvc/?username=hoursofcooleststuff4evr&color=F6F0D7&label=bunnies&abbreviated=true) 
 </div>
 <div align="center">
+     <div align="center"><img src="https://s7.ezgif.com/tmp/ezgif-701dcefc21c86fcd.gif"></div>
 hi im warminghare
+<div align="center">❤︎</div>
   
   [WELL THAT WAS FUN, GOODBYE!](https://www.youtube.com/watch?v=FO86cGvF45o)
   </div>
@@ -19,3 +22,4 @@ hi im warminghare
   <div align="center">
  
    [rentry](https://rentry.co/warminghare) ✦ [my tree](https://colormytree.me/2025/01KBHHQ34VD4DVXSWSJJ52R9EC?page=1) ✦ [my main](https://github.com/cataclysmtick) ✦ [atabook](https://cruuuxxx.atabook.org/)
+   </div>
