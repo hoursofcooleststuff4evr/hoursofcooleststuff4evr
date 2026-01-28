@@ -1,4 +1,4 @@
-currently testing. if u see this odnt mind it LMAO
+
 <div align="center"><img src="https://dividers.crd.co/assets/images/gallery05/282052e4.gif?v=05d33f91"></div><br>
 
 <div align="center"> 🐛🍎&nbsp;&nbsp;&nbsp; ︵ &nbsp;&nbsp;&nbsp; ✦︎&nbsp;&nbsp;&nbsp&nbsp; ═══════ 
